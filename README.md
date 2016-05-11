@@ -1,2 +1,2 @@
 # hello-world
-just testing, this is how I work
+semua dihilangkan dan coba 2
